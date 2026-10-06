@@ -8,3 +8,5 @@ weekly-status-agent.md-I Stopped Writing Status Reports. My Agent Sends Them htt
 One Blog Post Becomes 12 Pieces of Content Overnight https://youtu.be/vGs1fuhVazk
 
  The HR Bot That Answered 60 Questions for Me https://youtu.be/NZWchFyDmDM
+
+FULL - An Agent That Finds Every Bill in My Inbox https://www.youtube.com/watch?v=wO_0dzCwmzU
