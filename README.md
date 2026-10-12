@@ -11,4 +11,4 @@ One Blog Post Becomes 12 Pieces of Content Overnight https://youtu.be/vGs1fuhVaz
 
 FULL - An Agent That Finds Every Bill in My Inbox https://www.youtube.com/watch?v=wO_0dzCwmzU
 
-My Meetings Write Their Own Notes Now
+My Meetings Write Their Own Notes Now https://youtu.be/TzzLpxz0I-0
