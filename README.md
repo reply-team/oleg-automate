@@ -14,3 +14,5 @@ FULL - An Agent That Finds Every Bill in My Inbox https://www.youtube.com/watch?
 My Meetings Write Their Own Notes Now https://youtu.be/TzzLpxz0I-0
 
 An Agent That Drafts Every Support Reply https://youtu.be/d0Xzwy71jds
+
+Claude Did the Paperwork for Our New Hire https://youtu.be/0ATRnQONWGU
