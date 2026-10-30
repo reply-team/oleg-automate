@@ -18,3 +18,5 @@ An Agent That Drafts Every Support Reply https://youtu.be/d0Xzwy71jds
 Claude Did the Paperwork for Our New Hire https://youtu.be/0ATRnQONWGU
 
 Claude Read 60 Job Applications Before Lunch https://youtu.be/kYXY1uPUEs4
+
+My Friday Status Report Writes Itself Now https://youtu.be/X3xNJE7QUCE
